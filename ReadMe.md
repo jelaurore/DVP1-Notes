@@ -11,3 +11,6 @@ Done uploading my dicusion video for database topic related.
 
 Started Lab 9 for DBS. 
 Done creating my ER Diagram. Created a very understandable diagram, so I can have more time to work on my personal project.
+
+Done with my diagram and completed the video.
+Done loading to youtube with the link posted for number 8.
