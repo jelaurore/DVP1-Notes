@@ -14,3 +14,5 @@ Done creating my ER Diagram. Created a very understandable diagram, so I can hav
 
 Done with my diagram and completed the video.
 Done loading to youtube with the link posted for number 8.
+
+Started working on my personal project around 6 PM. Halfway done. Taking a break at 11PM. Will start tomorrow.
