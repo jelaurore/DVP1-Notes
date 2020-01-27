@@ -16,3 +16,5 @@ Done with my diagram and completed the video.
 Done loading to youtube with the link posted for number 8.
 
 Started working on my personal project around 6 PM. Halfway done. Taking a break at 11PM. Will start tomorrow.
+
+Started working on my personal project from 8PM. Taking abreak. until tomorrow. 
